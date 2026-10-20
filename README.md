@@ -1,1 +1,1 @@
-# Atividade-do-t-cnico
+# Atividade-do-tecnico
